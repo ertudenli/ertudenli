@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ertudenli 
-- 🎼A Part of @tikkmusic 🎨 Art Lover @sapaworx 👨‍🍳 Hobby Cook @ertus_kitchen 🥷🏻Digital Ninja 🦋Social Butterfly
+- 🎼Music Lover and 🎨 Art Lover @sapaworx 👨‍🍳 Hobby Cook @ertus_kitchen 🥷🏻Digital Ninja 🦋Social Butterfly
 Non-functional without caffeine☕, creativity 🪄& naps😴!
 - 📫 How to reach me "denli.ertu@gmail.com"
 
